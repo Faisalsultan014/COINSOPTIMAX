@@ -1,0 +1,2 @@
+# COINSOPTIMAX
+"           WHO RE WE         " A generation investment platform that provides excellent profit on crypto investment COINSOPTIMAX is a platform that makes mining very efficient, productive and accessible for everyone, it gives large opportunity with highly programmable data centers that enable mining operations more effective for Investors Our world leading crypto currency analysts, investors and forecasters disperse your investment intelligently across the globe and generate best profit.
